@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @parulkhannaLTU (Parul Khanna), doctoral student at luleå university of technology, Sweden.
+- 👀 I’m interested in and currently learning ... Metaverse, IndustrialAI, Human Cognition, eMaintenance.
+- 📫 How to reach me ... parul.khanna@emaintenancelab.com, [www.linkedin.com/in/parulkhanna14](https://www.linkedin.com/in/parulkhanna14)
